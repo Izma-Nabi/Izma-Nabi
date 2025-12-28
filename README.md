@@ -1,5 +1,5 @@
 # 💫 About Me:
-AI based porjects and a university student 
+AI based porjects and a university student  
 
 
 ## 🌐 Socials:
